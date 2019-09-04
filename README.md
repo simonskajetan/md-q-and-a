@@ -2,7 +2,7 @@
 
 your favorite pet ? 𝐚𝐧𝐬𝐰𝐞𝐫 𝐢𝐧 𝐛𝐨𝐥𝐝 𝐩𝐥𝐳
 
-**Turtle**
+**Turtle** (KORNEEL)
 
 Two favourite and two least favourite flavours? Answer in tables.
 
